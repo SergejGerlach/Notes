@@ -1,1 +1,1 @@
-# Div.notes s. Wiki page
+# Div. notes see Wiki page
